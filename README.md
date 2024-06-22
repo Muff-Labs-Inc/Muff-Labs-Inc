@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Muff-Labs-Inc
+- I am a former wildland firefighter of 13 years
+- I am legally blind
+- I obsessed with hacking
+- I love the Flipper zero 
